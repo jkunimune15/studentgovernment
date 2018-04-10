@@ -637,8 +637,7 @@ Meetings of the Committee include the Officers and the General Membership. The
 Director and Assistant Director of Service also schedule regular meetings with
 the Student Affairs adviser, faculty adviser, and staff adviser to keep them up
 to date and find opportunities to involve the entire Olin community in
-maintaining a spirit of service and volunteerism. Announcements of meetings
-times and agendas are sent to the SERV mailing list prior to meetings.
+maintaining a spirit of service and volunteerism.
 
 #### Section 5. SERV Budget.
 
